@@ -1,4 +1,4 @@
-### The Register Page This week
+## The Register Page This week
 -----
 
 Hey guys, this is the KIAA Badminton Club. This page is for the **registering for weekly badminton activities**. 
