@@ -10,11 +10,11 @@ After the competition, two teams are still family. The story continues...
 
 ### Gaming Highlight
 Congratulations to Team *Everything You Said is Right*
-![family](golden.png)
+![golden](golden.jpg)
 
 Congratulations to Team *Big Bang*
-![family](silver.png)
+![silver](silver.jpg)
 
 Women's doubles really show their styles!
-![family](women'sdoubles.png)
+![doubles](women'sdoubles.jpg)
 
