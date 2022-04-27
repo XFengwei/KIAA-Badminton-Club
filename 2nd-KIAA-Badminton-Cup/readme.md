@@ -4,3 +4,5 @@ The 2nd KIAA Badminton Cup competition took two nights (20th and 27th of April) 
 
 ### The registeration is now open for everyone in KIAA, PKU. Please fill the questionnaire [here](https://www.wjx.cn/vj/YD5x1bv.aspx)
 The registeration is  shut down.
+
+![family](family.png)
